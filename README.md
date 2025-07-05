@@ -48,4 +48,4 @@ AI修复高清老番
 
 
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/sunni21358/34515 ）</span>
